@@ -1,0 +1,6 @@
+- 👋 Meu Nome é Gabriel
+- 👀 Sou interessado por Tecnologia e a matérias de Humanas
+- 🌱 Atualmente, estou estudando Java e as matérias que me foram ensinadas na escola.
+- 💞️ Sou bem comunicativo
+- 😄 Pronomes: Ele/Dele
+- ⚡ Me divirto tocando violão, cantando e conversando
